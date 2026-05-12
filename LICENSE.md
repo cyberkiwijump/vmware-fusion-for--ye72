@@ -1,4 +1,4 @@
-# 
+# Enhance VMware Fusion for macOS with exclusive VMware Fusion for macOS Script | file-sharing + shared-folders, the #1 script. Includes file-sharing and shared-folders for a
 
 
 
